@@ -1,0 +1,2 @@
+# BeDau
+linh tinh
